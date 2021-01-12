@@ -1,4 +1,4 @@
-###                                 Arjun
+###                                Arjun
 
 
    Hi, my name is Arjun and I am a student. I love Beyblade and Bakugan!
