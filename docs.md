@@ -3,7 +3,7 @@
 
    Hi, my name is Arjun and I am a student. I love [Beyblade](https://en.wikipedia.org/wiki/Beyblade_Burst) and [Bakugan](https://en.wikipedia.org/wiki/Bakugan:_Battle_Planet). I also love my family, friends, [Roblox](https://en.wikipedia.org/wiki/Roblox) and [Minecraft EE](https://education.minecraft.net/). 
    
-   Scroll down🔻 to see more thing that I like!
+   Scroll down🔻 to see more things that I like!
    
    
    ####  Things I like
