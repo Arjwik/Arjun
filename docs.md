@@ -17,5 +17,6 @@
 6. Family
 7. Friends
 8. Food (Only yummy food😋😋)
+9. The color Red
 
 Well those are things I like in my life so far.
